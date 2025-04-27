@@ -1,1 +1,1 @@
-# I am Kavithma Thushal Full Stack Developer
+# Kavithma Thushal | Full Stack Developer
